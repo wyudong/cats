@@ -16,5 +16,5 @@
 
 小猫见到毛线球的第一天，其实并没有什么兴趣。第二天，似乎激发了其体内原始的狩猎欲望，开始撕咬起来。
 
-![img-8.19](https://cloud.githubusercontent.com/assets/5687273/17782365/bd5efbd6-65a5-11e6-833e-2e80b7fb9ca5.jpg)
-我是只黑梨花小奶猫，还没有名字，请多指教
+![我是只黑梨花小奶猫，还没有名字，请多指教](https://cloud.githubusercontent.com/assets/5687273/17782365/bd5efbd6-65a5-11e6-833e-2e80b7fb9ca5.jpg)
+<sup>我是只黑梨花小奶猫，还没有名字，请多指教</sup>
